@@ -1,4 +1,4 @@
-# Session10_JahnaviRamagiri
+# Session10_Kotala raghavendra
 
 ### Objective 1 :
 
